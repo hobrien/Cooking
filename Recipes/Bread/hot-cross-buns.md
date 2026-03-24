@@ -17,7 +17,7 @@ Mix in a medium bowl:
 
 Combine yeast with other liquid ingredients, then mix with:
 
-- 390 g AP flour
+- 480 g AP flour
 
 Knead until smooth and stretchy, form into a ball, and rest until
 doubled in size (45-60 minutes).
@@ -66,8 +66,6 @@ Mix up fondant icing and pipe crosses:
 
 Notes:
 
-- I don't know if I mis-measured the flour, but I had to add an extra
-  90 g to get a workable dough.
 - I couldn't find golden raisins so I used sultanas.
 - I soaked the fruit in leftover pomegranate juice.
 - Lemon glaze is a bit thick. Use twice as much lemon juice next time.
