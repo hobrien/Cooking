@@ -29,6 +29,7 @@ Soak overnight in flavorful liquid of your choice:
 - 1/3 cup currants or dark raisins
 - 1/3 cup golden raisins
 - 1/3 cup dried cranberries
+- 1/3 cup chopped dried apricots
 
 Drain and mix with:
 
@@ -72,3 +73,4 @@ Notes:
 - I think I accidentally added a tbsp of water to the fondant. I added
   probably another 50 g of icing sugar and ended up with a thick but
   pipeable icing that worked perfectly for the crosses.
+- I ran out of cranberries so I'm trying it with some candied peel
