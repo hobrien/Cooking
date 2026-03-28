@@ -74,3 +74,4 @@ Notes:
   probably another 50 g of icing sugar and ended up with a thick but
   pipeable icing that worked perfectly for the crosses.
 - I ran out of cranberries so I'm trying it with some candied peel
+- With think enough fondant its possible to make crosses without a piping bag by just rolling it between your fingers
