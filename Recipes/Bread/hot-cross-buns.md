@@ -17,7 +17,7 @@ Mix in a medium bowl:
 
 Combine yeast with other liquid ingredients, then mix with:
 
-- 390 g AP flour
+- 480 g AP flour
 
 Knead until smooth and stretchy, form into a ball, and rest until
 doubled in size (45-60 minutes).
@@ -29,6 +29,7 @@ Soak overnight in flavorful liquid of your choice:
 - 1/3 cup currants or dark raisins
 - 1/3 cup golden raisins
 - 1/3 cup dried cranberries
+- 1/3 cup chopped dried apricots
 
 Drain and mix with:
 
@@ -66,11 +67,10 @@ Mix up fondant icing and pipe crosses:
 
 Notes:
 
-- I don't know if I mis-measured the flour, but I had to add an extra
-  90 g to get a workable dough.
 - I couldn't find golden raisins so I used sultanas.
 - I soaked the fruit in leftover pomegranate juice.
 - Lemon glaze is a bit thick. Use twice as much lemon juice next time.
 - I think I accidentally added a tbsp of water to the fondant. I added
   probably another 50 g of icing sugar and ended up with a thick but
   pipeable icing that worked perfectly for the crosses.
+- I ran out of cranberries so I'm trying it with some candied peel
