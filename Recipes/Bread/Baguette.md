@@ -20,7 +20,7 @@ In the morning add to stand mixer bowl with poolish:
 
 - 100 g starter (50 g water)
 - 125 g water
-- 162.5 g AP flour
+- 162.5 g plain flour
 - 87.5 g bread flour
 
 Mix until combined, then autolyse for 30 minutes to 1 hour.
