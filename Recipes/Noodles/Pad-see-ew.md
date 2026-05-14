@@ -18,10 +18,10 @@ combine thoroughly.
 
 Combine sauce ingredients in a small bowl:
 
-- 1.4 g (18 g) sugar
-- 1.5 tbsp oyster sauce
-- 1.5 tbsp dark soy sauce
-- 1.5 tbsp light soy sauce
+- 1.5 tbsp (18 g) sugar
+- 1.5 tbsp (20 g) oyster sauce
+- 1.5 tbsp (25 g) dark soy sauce
+- 1.5 tbsp (25 g) light soy sauce
 
 Mince and place in small bowl:
 
