@@ -18,5 +18,6 @@ Beat in until desired consistency achieved:
 
 ## Notes
 
+- Go easy with the mixer at first or you'll produce a cloud of powdered sugar
 - Amount can be adjusted by maintaing the 2:1 ratio of sugar to butter. This amount works for a 17 cm 4 layer cake
 - I use water rather than milk or cream so that the frosting is shelf stable for a day or two. No idea if it needs to be hot. Probably not
