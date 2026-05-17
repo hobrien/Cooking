@@ -4,24 +4,24 @@ Adapted from The Wok.
 
 Combine chicken marinade ingredients in a medium bowl:
 
-- 1 tsp light soy sauce
-- 1 tsp cornstarch
-- 1/4 tsp baking soda
+- 2 tsp (10 g) light soy sauce
+- 2 tsp (4 g) cornstarch
+- 1/2 tsp (2 g) baking soda
 - pinch salt
 
 Thinly slice and wash in a large bowl of water:
 
-- 175 g chicken breast
+- 350 g chicken breast
 
 Drain chicken and squeeze out water. Add to bowl with marinade and
 combine thoroughly.
 
 Combine sauce ingredients in a small bowl:
 
-- 1.4 g (18 g) sugar
-- 1.5 tbsp oyster sauce
-- 1.5 tbsp dark soy sauce
-- 1.5 tbsp light soy sauce
+- 1.5 tbsp (18 g) sugar
+- 1.5 tbsp (20 g) oyster sauce
+- 1.5 tbsp (25 g) dark soy sauce
+- 1.5 tbsp (25 g) light soy sauce
 
 Mince and place in small bowl:
 
@@ -30,11 +30,11 @@ Mince and place in small bowl:
 Blanch in boiling water for 2 minutes, transfer to bowl of cold water
 for 5 minutes, then drain:
 
-- 6 oz purple sprouting broccoli, cut into bite-sized pieces
+- 200 g purple sprouting broccoli, cut into bite-sized pieces
 
 Place in boiling water and cook 4–5 minutes:
 
-- 280 g thick rice noodles
+- 225 g thick rice noodles
 
 Drain noodles and place on bamboo tray. Hold fan in front of noodles
 and lift with chopsticks to cool. Once cooled, place in cold wok and
